@@ -1,3 +1,3 @@
-# MeghanaIyer.github.io
+# Personal page 
 
-# creating a user page
+Basic info
