@@ -1,4 +1,4 @@
-### Meghana Balasubramanian
+### Meghana Balasubramanian.
 
 # Education: 
 > Bachelor of Engineering in Biotechnology, BMS College of Engineering (2015-2019)
