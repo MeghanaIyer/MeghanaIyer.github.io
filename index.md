@@ -1,3 +1,3 @@
-## Welcome to Github Pages
+## Welcome to Meghana's Page
 
 Chosen theme: Cayman
